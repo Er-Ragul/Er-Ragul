@@ -1,5 +1,5 @@
 # 💫 About Me:
-Linux Administrator at DXC Technology | 5+ years of IT experience | Freelance Mentor | Self-learner on a mission to innovate 💡 Let's connect and build something great together!
+Cloud Operations Engineer at Zoho | 5+ years of IT experience | Freelance Mentor | Self-learner on a mission to innovate 💡 Let's connect and build something great together!
 
 
 ## 🌐 Socials:
